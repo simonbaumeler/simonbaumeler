@@ -1,4 +1,13 @@
-### Hi there 👋
+### Hello there traveler 
+
+✨ I'm Simon and i like to do things on the mighty internet sometimes. </br>
+
+🔶 currently working @ajilach</br>
+
+🧡 also doing cool stuff with www.lal.gg</br>
+
+🌳 always working and never finishing www.baumeler.cool </br>
+
 
 <!--
 **simonbaumeler/simonbaumeler** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
