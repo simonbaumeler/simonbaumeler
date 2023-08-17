@@ -6,7 +6,7 @@
 
 🧡 also doing cool stuff with www.lal.gg</br>
 
-🌳 always working and never finishing www.baumeler.cool </br>
+🌳 always working on and never finishing www.baumeler.cool </br>
 
 
 <!--
